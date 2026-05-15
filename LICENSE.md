@@ -1,4 +1,4 @@
-# 
+# new Aseprite for PC | Aseprite for Windows Script | adjustment-layers + AI-enhanced-tools offers the most advanced Aseprite for PC | Aseprite for Windows script, with
 
 
 
